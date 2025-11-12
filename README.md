@@ -6,5 +6,5 @@ Completed data analytics training, expanding competencies in product, marketing,
 - 🔭 I’m currently looking for a first job as Data Analyst
 - ⚡ Fun fact: motolady, karaoke lover
 
-## Connect with me via [Telegram](https://t.me/AlenaTsim)
+#### Connect with me via [Telegram](https://t.me/AlenaTsim)
 
